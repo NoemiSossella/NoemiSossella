@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning how to create videogames
 - 💞️ I’m looking to collaborate on everyone
 - 📫 How to reach me:
+
 | | |
 | --- | --- |
 | Discord Server | [Link](https://discord.gg/cdEPPv3y) |
