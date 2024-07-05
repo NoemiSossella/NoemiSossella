@@ -1,7 +1,7 @@
 - 👋 Hi, I’m [@NoemiSossella](https://github.com/NoemiSossella)
 - 👀 I’m interested in videogames
 - 🌱 I’m currently learning how to create videogames
-- 💞️ I’m looking to collaborate on everyone
+- 💞️ I’m looking to collaborate with everyone
 - 📫 How to reach me:
 
 | | |
