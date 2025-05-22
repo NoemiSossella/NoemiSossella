@@ -6,7 +6,6 @@
 
 | | |
 | --- | --- |
-| Discord Server | [Link](https://discord.gg/cdEPPv3y) |
 | Instagram | [Link](https://www.instagram.com/_k0rby) |
 | Twitch | [Link](https://www.twitch.tv/k0rbychan) |
 | Portfolio 2023-2024 | [Link](https://www.canva.com/design/DAGH1R8Hg4g/V09Mm17jnM2Bmg-mEcS31g/view?utm_content=DAGH1R8Hg4g&utm_campaign=designshare&utm_medium=link&utm_source=editor) |
