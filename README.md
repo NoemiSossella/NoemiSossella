@@ -11,7 +11,7 @@
 | Portfolio 2023-2024 | [Link](https://www.canva.com/design/DAGH1R8Hg4g/V09Mm17jnM2Bmg-mEcS31g/view?utm_content=DAGH1R8Hg4g&utm_campaign=designshare&utm_medium=link&utm_source=editor) |
 | Portfolio 2024-2025 | [Link](https://www.canva.com/design/DAGoKbCVHDw/vEN__IpsFqfIOsYqg129Tw/view?utm_content=DAGoKbCVHDw&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h7aee3af68e) |
 
-![](https:/i.pinimg.com/736x/7f/1d/5f/7f1d5fa47262f06f0c65c9c2a76f7599.jpg)
+![](https://i.pinimg.com/736x/7f/1d/5f/7f1d5fa47262f06f0c65c9c2a76f7599.jpg)
 
 <!---
 NoemiSossella/NoemiSossella is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
